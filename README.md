@@ -1,2 +1,2 @@
-# Textuar
-http://www.textuar.com/seo-friendly-content-writing Our quality is backed by the credibility of an impressive list of our clientele, thus making Textuar a valuable proposition for your business.
+	Get the online boost your brand needs with digital marketing 
+ With our content writing services India https://www.textuar.com at Textuar, telling stories about your brands becomes easier. Establish a deeper connect with prospective customers, nurture them through the sales funnel and get great outcomes in the form of incredible conversion. The naturally flowing content appeals to readers to read till the end and respond to the call to action and thus accelerate your conversion goals. Our content writing services help you engage with your target customers and make a great impact. This favorable brand recall value lets you stay on their mind for a long time.  
